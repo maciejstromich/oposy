@@ -1,0 +1,17 @@
+# Odkrycia, czyli krótka historyjka z morałem...
+
+Jakiś czas temu, w okolicach pierwszej połowy drugiej połowy zeszłego roku poajwiły się problemy z jedną czujką, która wprowadzała Oposy w błąd wysyłając fałszywki, wiecie... palpitacja serca przy telefonie dumnie ogłaszającym niedziałanie ważnego systemu ponaglane jednocześnie smsami  od Überoposokierowników i takie tam przyjemności.
+
+Oposy, jako że to zwierzątka waleczne, postanowiły zaradzić swojej sytuacji i wykluczyły uszkodzoną czujkę z rotacji, uspokajając swoje serduszka, zapominając o całej sytuacji i wróciły do ciekawszych zajęć niż patrzenie na wykresiki latencji i utylizacji procesora.
+
+Jednakże Chochliki wiedziały, że Oposiki zjebały i to dopiero początek zabawy, która będzie trwała aż do momentu, kiedy coś naprawdę wybuchnie i rozpęta się piekiełko w norce Oposików. Mijały dni, mijały miesiące i Oposy sobie żyły w przeświadczeniu że wszystko działa jak powinno, testy infrastruktury sprawdzającej niedostępność zapewniały Oposy, że będą poinformowane o niedziałaniu systemów w razie konieczności, wszystkie wykresiki się zgadzały... istna sielanka.
+
+I wtedy przyszedł Emil.. Emil był zwowieszczy... Emil był nasączony jadem... Emil miał tylko jedno zadanie... Jak nawiększe spustoszenie wsród gromadki Oposów.
+
+Oposy zauważając go po ponad godzinie (bo kto zwraca uwagę na Emila?!?) wiedziały że są już w czarnej dupie i muszą działać szybko w celu minimalizacji skutków i aby odesłać Emila z powrotem z dobrą nowiną. 
+
+Jak przystało na Oposy niedługo później Emil wędrował w świat, głosząc dobrą nowinę o zwycięskiej batalii walecznych zwierzątek. Oposy zadowolone z siebie wróciły do swoich poprzednich zajęć, ale jednemu z nich jedna rzecz ciągle nie dawała spokoju... skoro przyszedł Emil to powód musiał być znacznie poważniejszy niż wszystkim się wydawało... zaczął patrzeć i dumać i z każdą sekundą jego malutkie oczka stawały się coraz większe i większe i większe. Na koniec tylko krzyknął "O! Kurwa" zwracając uwagę wszystkich Oposików w norce, które się zbiegły do jego stanowiska zwabione użyciem tak wyszukanej frazy i zaczęło się grupowe ojojanie.
+
+Znaleziony Chochlik okazał się być małą gnidą, która wyłapywała wszystkie notyfikacje informujące Oposy o aktualnym stanie systemu. Jak na Chochlika przystało jego działania najpierw miały malutki zasięg ale kiedy zrozumiał, że jest ignorowany i nie doczeka się oczekiwanej atencji zamiast znudzić się postanowił odegrać się na większą skalę gdy tylko nadarzy się ku temu okazja, na którą nie musiał czekać wieczności....
+
+Była to pora wczesnego poranka, Oposy ledwie zbudzone ze snu, kierowały się w stronę dobrze znanego sobie miejsca obfitującego w eliksir życia, gaworząc przy tym o targetach i innych asapach. Chochlik gdy tylko zrozumiał że to jest ten dzień, uradowany i gotowy do akcji czekał jak na szpilkach na swoje 5 minut. Nadeszła 9 rano i w systemie pojawiła się notyfikacja o niedostępności. Chochlik złapał ją i wrzucił do worka razem z wyciszonymi notyfikacjami z przed pół roku, kiedy to jedna z wadliwych czujek postanowiła wysyłać fałszywe wiadomości do Oposów. Niestety Oposy myśląc, że wyłączając jedną z nich z rotacji spowodują zamknięcie incydentu (no bo przecież wszystkie inne będą zgłaszać że system działa poprawnie) i nie pofatygowały się na wuwuwu aby zamknąć go ręcznie. Jakiż to był błąd... Resztę historii drogie dziatki już znacie, a morał z tej historii jest taki... jak nie zamkniesz drzwi to przyjdzie Emil i ci na#$bie.
